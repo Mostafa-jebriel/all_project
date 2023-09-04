@@ -21,6 +21,10 @@ AIM - خطوتك الأولى نحو النجاح التجاري والتطور 
 * Google Play </p>https://play.google.com/store/apps/details?id=com.teleoceans.mmj.aim_holdings
 </p>
 
+* Apple Store </p>https://apps.apple.com/eg/app/aim-holding/id6463154326?l=ar
+</p>
+
+* Behance </p>https://www.behance.net/gallery/179227595/AIM-Holding
 </p>
 
 </p>
