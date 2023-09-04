@@ -10,7 +10,7 @@
 * Apple Store </p>https://apps.apple.com/eg/app/my-ploto/id6449781027?l=ar
 </p>
 
-* Behance </p>https://www.behance.net/gallery/179226495/My-Ploto?
+* Behance </p>https://www.behance.net/gallery/179226495/My-Ploto
 </p>
 
 </p></p>
